@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **MERN**
 
-- 📫 How to reach me **usamaashraf540@gmail.com,2106317@kiit.ac.in**
+- 📫 How to reach me **usamaash001@gmail.com,2106317@kiit.ac.in**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
